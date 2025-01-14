@@ -1,6 +1,6 @@
 # Unblocked Games 6x
 
-[![Play Game](https://img.shields.io/badge/Play_Game-Click_Here-brightgreen?style=for-the-badge)](https://scriptrst.com/unblocked-games-6x/)
+[![Play Game](https://img.shields.io/badge/Play_Game-Click_Here-brightgreen?style=for-the-badge)](https://shorturl.at/nLfqB)
 
 In today’s fast-paced digital world, finding a quick escape during work or study breaks is a common need. Enter **Unblocked Games 6x**, a popular destination for gamers looking to enjoy their favorite games without restrictions. Whether you’re a student, an employee, or just someone with a few spare minutes, this platform offers an exciting array of games that can be accessed anytime, anywhere.
 
